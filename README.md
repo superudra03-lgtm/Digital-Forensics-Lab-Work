@@ -1,1 +1,1 @@
-Documented PDFs of Dgital Forensics Work
+Documented PDFs of Digital Forensics Work
